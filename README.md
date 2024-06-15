@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @pranitajagtap25
 - 👀 I’m interested in Andriod Development
-- 🌱 I’m currently learning MCA
+- 🌱 I’m currently Graduated MCA
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me pdjagtap410@gmail.com
 
